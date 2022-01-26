@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... all manner of visually gratifying aesthetics and pleasureable fun
 - 🌱 I’m currently learning ... intuitively, though some may say haphazardly
 - 💞️ I’m looking to collaborate on ... projects and partys. hit me up
-- 📫 How to reach me ... corporeal meat in the Smug Hermit Kingdom of Aotearoa (AKA NZ). But outsize of meat space, well, you just wait. Watch how I emerge and omnipermeate (strange looking compound word, I concede, so omnipervade if omnipermeation takes no purchase in your mind)
+- 📫 How to reach me ... in corporeal meat, I'm in Auck(ward)land, money capital of the Smug Hermit Kingdom of Aotearoa (AKA NZ). But outsize of meat space, well, you just wait. Watch how I emerge and omnipermeate (strange looking compound word, I concede, so omnipervade if omnipermeation takes no purchase in your mind). or try me at my gmail addy (folding...etc)
 
           
 
